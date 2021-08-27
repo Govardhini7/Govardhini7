@@ -21,5 +21,3 @@ Some of the works done
 [https://superiorcontractingwpg.ca/](https://superiorcontractingwpg.ca/)
 [https://ful-flo.ca/](https://ful-flo.ca/)
 [https://kerwal.ca/](https://kerwal.ca/)
-[https://towingcompanywinnipeg.com/](https://towingcompanywinnipeg.com/)
-[https://dollarwebsites.ca](https://dollarwebsites.ca)
