@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Govardhini7
 - 👀 I’m interested in Web Designing and Development
-- 🌱 I’m currently learning ContentStack
+- 🌱 I’m currently learning Angular
 - 📫 Reach me at govardhininatarajan@gmail.com
 
 <!---
